@@ -1,1 +1,1 @@
-
+https://ogrencibartinedu-my.sharepoint.com/:v:/g/personal/21670310184_ogrenci_bartin_edu_tr/EcpAi5oXSXVKlWOCVZGRsG8Bnk1RvHFRHmHIOXrULOEMxw
